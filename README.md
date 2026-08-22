@@ -1,4 +1,4 @@
-# Hi, I'm [Your Name] 👋
+# Hi, I'm [Arwa Omar] 👋
 
 ### 🔐 Cybersecurity Researcher | PhD Student | IT Instructor
 
